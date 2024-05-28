@@ -4,3 +4,4 @@ W taki sposób szybciej można pozyskać dokumentacje PDF.
 Programator radiowy lub na kabel USB Automatyczny na mocnym procesorze AVR. 
 Sposobem nobla grażowca ze złomu AGD i RTV się nie zrobi nie da się. Sposobem Keksa psa czy burka psa Noblisty Blaskowicza się nie da bo rupiecie wychodzą. Takie zakończenia jak Naomi Reipec co dała się zabić. 
 Dziękuje za uwagę powodzenia w hakowaniu i wyliczeniach. 
+Dopiero można komuś wysłać Emailem po hakowaniu i wyliczeniach. 
